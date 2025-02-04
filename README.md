@@ -1,1 +1,1 @@
-# Activations
+Global shop
